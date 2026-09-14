@@ -1,1 +1,0 @@
-# kmseok1229_star.github.io
